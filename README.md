@@ -1,1 +1,0 @@
-Legend Of Glory
