@@ -1,2 +1,1 @@
-# LOG
-Legend Of Glory
+
